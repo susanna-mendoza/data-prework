@@ -1,0 +1,1 @@
+Since I left Math behind in my High School days, I paid the Coursera Certificate when I finished the course, since it has been a real hit for me. If you need the screenshots anyways, please, let me know.
